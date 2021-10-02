@@ -30,7 +30,7 @@ In Garia, Kolkata 🇮🇳
 
 *18 years old*
 
-[Email 📧]()
+Email 📧 - (rashmitiwari35832@gmail.com)
 
 [LinkedIN](https://www.linkedin.com/in/rashmi-tiwari-445129179/)
 
